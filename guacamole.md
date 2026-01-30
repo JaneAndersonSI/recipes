@@ -1,5 +1,5 @@
 Ingredients:
-- 2 **perfect** avocados
+- 2 **perfect** avocados (firmness should approximate a full waterballoon)
 - 1 lime
 - 2 tsp salt
 
